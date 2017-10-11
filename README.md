@@ -1,2 +1,6 @@
-# RepositryOne
-demostrate how to make a repositry
+#RepositryOne
+#yuvraj singh Rathore
+yuvraj have
+
+betu!!!
+
